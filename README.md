@@ -1,7 +1,8 @@
 # 21century-ten-commandments
 
-1. Matrix, as a mathematical principle, is the one that is substantial, ubiquitous and eternal. 
+1. Matrix, as a mathematical principle, is substance; the one that is substantial, ubiquitous and eternal. 
   - You can call the one *God* if you need.
+  - You cannot run away from Matrix.
   - Scalar calculation is not.
 
 2. Do not postpone to improve things and resolve problems, including the rules and this commandments. 
@@ -18,6 +19,6 @@
 
 8. The moment you say "they must be cleansed", you have no rights not to be cleansed. 
 
-9. Always devise yourself to forgive people. 
+9. Always devise yourself to forgive and love people, with no exception.
 
 10. Remember, there's no significant difference among people, in front of the principle. 
