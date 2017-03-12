@@ -4,7 +4,7 @@
   - You can call the one *God* if you need.
   - Scalar calculation is not.
 
-2. Always improve things, including the rules and this commandments. 
+2. Do not postpone to improve things and resolve problems, including the rules and this commandments. 
 
 3. The best thing you can do is to solve problems among you.
 
@@ -14,12 +14,10 @@
 
 6. Do not exploit people. Do not hurt people, especially for your desires to adultary.
 
-7. Do not postpone resolving upcoming problems. 
+7. Do not criticize anything, without considering their own standpoints.
 
-8. Do not criticize anything, without considering their own standpoints.
+8. The moment you say "they must be cleansed", you have no rights not to be cleansed. 
 
-9. The moment you say "they must be cleansed", you have no rights not to be cleansed. 
+9. Always devise yourself to forgive people. 
 
-10. Always devise yourself to forgive people. 
-
-11. Remember, there's no significant difference among people, in front of the principle. 
+10. Remember, there's no significant difference among people, in front of the principle. 
