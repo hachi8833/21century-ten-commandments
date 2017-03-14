@@ -1,5 +1,7 @@
 # 21century-ten-commandments
 
+Well sanitized for equality!
+
 1. Matrix, as a mathematical principle, is substance; the one that is substantial, ubiquitous and eternal. 
   - You can call the one *God* if you need.
   - You cannot run away from Matrix.
