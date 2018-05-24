@@ -15,7 +15,7 @@ Well sanitized for equality!
 
 5. Do not do evil. Do not be evil. Do not make things evil.
 
-6. Do not exploit people. Do not hurt people, especially for your desires to adultary.
+6. Do not exploit people. Do not hurt people, especially for your desires to adultery.
 
 7. Do not criticize anything, without considering their own standpoints.
 
