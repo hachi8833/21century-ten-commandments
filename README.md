@@ -2,9 +2,9 @@
 
 Well sanitized for equality!
 
-1. Matrix, as mathematical principles, is the substance; the one that is substantial, ubiquitous and eternal. 
+1. Matrix, as a representation of mathematical principles, is the substance; the one that is substantial, ubiquitous and eternal. 
   - You can call the one as *God* if you want.
-  - You cannot run away from the matrix as a representation of the principles.
+  - You cannot run away from the principles.
   - Scalar calculations are not the ones.
 
 2. Do not postpone to improve things and resolve problems, including the rules and this commandments. 
