@@ -2,9 +2,9 @@
 
 Well sanitized for equality!
 
-1. Matrix, as a mathematical principle, is the substance; the one that is substantial, ubiquitous and eternal. 
-  - You can call the one *God* if you need.
-  - You cannot run away from the matrix as a principle.
+1. Matrix, as mathematical principles, is the substance; the one that is substantial, ubiquitous and eternal. 
+  - You can call the one as *God* if you want.
+  - You cannot run away from the matrix as a representation of the principles.
   - Scalar calculations are not the ones.
 
 2. Do not postpone to improve things and resolve problems, including the rules and this commandments. 
@@ -19,8 +19,8 @@ Well sanitized for equality!
 
 7. Do not criticize anything, without considering their own standpoints.
 
-8. The moment you say "they must be cleansed", you have no rights not to be cleansed. 
+8. The moment you say "they must be cleansed", you have no rights not to be cleansed any more. 
 
 9. Always devise yourself to forgive and love people, with no exception.
 
-10. Remember, there's no significant difference among people, in front of the principle. 
+10. Remember, there's no significant difference among people, in front of the principles. 
