@@ -2,10 +2,10 @@
 
 Well sanitized for equality!
 
-1. Matrix, as a mathematical principle, is substance; the one that is substantial, ubiquitous and eternal. 
+1. Matrix, as a mathematical principle, is the substance; the one that is substantial, ubiquitous and eternal. 
   - You can call the one *God* if you need.
-  - You cannot run away from Matrix.
-  - Scalar calculation is not.
+  - You cannot run away from the matrix as a principle.
+  - Scalar calculations are not the ones.
 
 2. Do not postpone to improve things and resolve problems, including the rules and this commandments. 
 
